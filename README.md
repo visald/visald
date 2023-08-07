@@ -1,1 +1,1 @@
-Hey there, I'm Visal! wave
+Hey there, I'm Visal!
